@@ -1,12 +1,13 @@
 
 Trailheads URLs
+
 Team Leader:-https://trailblazer.me/id/abimanyu14
 
 Team Member 1:-https://trailblazer.me/id/aiay
 
 Team Member 2:-https://trailblazer.me/id/asraf8
 
-Team Member 3:-https://trailblazer.me/id/kanna
+Team Member 3:-http://trailblazer.me/id/kdhasan2
 
 
 
